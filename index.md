@@ -135,200 +135,200 @@ with which I have worked with
 
 ### Buy, bet & barter
 
-one, two, three,
-twenty cedis
-as an investment to double
+one, two, three,  
+twenty cedis  
+as an investment to double  
 and triple
 
-to over-multiply
-and flip a proper profit
-to actively acquire the cold
-technical skills
-that prove necessary
-for the survival of
+to over-multiply  
+and flip a proper profit  
+to actively acquire the cold  
+technical skills  
+that prove necessary  
+for the survival of  
 every Entrepreneurial entreprise
 
-we plotted and schemed
-for good, and no evil
-to prove our business strength
-profit being no metric for success
-embracing ethics
+we plotted and schemed  
+for good, and no evil  
+to prove our business strength  
+profit being no metric for success  
+embracing ethics  
 and deciding our worth
 
 ### Chale Wote
 
-friend, have you heard
-a tale of love and war
-a story of excitement
+friend, have you heard  
+a tale of love and war  
+a story of excitement  
 an avenue of warmth
 
 > a party by the ocean
 
-a place of true emotion
-a path of human traffic
-of peculiar experiences
-of culture and determination
+a place of true emotion  
+a path of human traffic  
+of peculiar experiences  
+of culture and determination  
 of grim expectation
 
 > a party by the ocean
 
 ### Music unheard
 
-I used to rap and sing
-and did so yesterday
-the second to the last
-of a strong length of days
+I used to rap and sing  
+and did so yesterday  
+the second to the last  
+of a strong length of days  
 of active recreation
 
-when I heard a beat
-loud enough
-for none to hear me spit
-I whispered aloud
+when I heard a beat  
+loud enough  
+for none to hear me spit  
+I whispered aloud  
 emotions spectacular
 
-happy I had made it this far
-excited just by life
-and triggered by the sights
-the smells and motion
-of a thousand
+happy I had made it this far  
+excited just by life  
+and triggered by the sights  
+the smells and motion  
+of a thousand  
 subtle dreams
 
 ### Storming
 
-my team was
-at first, for a moment
+my team was  
+at first, for a moment  
 pirates on the open sea
 
-with a queen from the south
+with a queen from the south  
 advising wisdom
 
-and I, a renegade poet
-proffering solutions
+and I, a renegade poet  
+proffering solutions  
 digital and artistic
 
-with a soldier from the west
-my very own country
-depicting tales of strength
+with a soldier from the west  
+my very own country  
+depicting tales of strength  
 I did not at first understand
 
-and a capable guide from the nation
-we will have for a home
+and a capable guide from the nation  
+we will have for a home  
 for a year, and many a happy day
 
-my team, eventually found
-they each had unique skills
-we turned the storm
-into a mirror
-and by swift reflection
+my team, eventually found  
+they each had unique skills  
+we turned the storm  
+into a mirror  
+and by swift reflection  
 found our sure path to the shore
 
 ### A war of roses
 
-face painting and poetry
-delivery joy, and history
-no measure when we pour
+face painting and poetry  
+delivery joy, and history  
+no measure when we pour  
 our shots of wonder
 
-teamwork
-and subtle perspiration
-new tastes
+teamwork  
+and subtle perspiration  
+new tastes  
 and soft delusion
 
-we build on love
-and go to war on hate
-we haggle with the lords of fate
-our customers
+we build on love  
+and go to war on hate  
+we haggle with the lords of fate  
+our customers  
 come from heaven's gate
 
 ### Tradition
 
-jungle dancing
-and sweet romancing
-of thoughts and ideas
-of things once feared
-of lyrics unsung
+jungle dancing  
+and sweet romancing  
+of thoughts and ideas  
+of things once feared  
+of lyrics unsung  
 and party garments unhung
 
 ### What
 
-is the real reason
-why we dance on clouds so high
+is the real reason  
+why we dance on clouds so high  
 and seek, want to fly
 
-are the wonders of
-galaxies, under the sea
+are the wonders of  
+galaxies, under the sea  
 Atlantis, and such
 
-do we mean, when we
-I love you, understand
-are these just empty
+do we mean, when we  
+I love you, understand  
+are these just empty  
 ... things
 
 ### Premium premium
 
-no price for
-Freudian contemplations
+no price for  
+Freudian contemplations  
 and half-spoken thoughts
 
-no cost for
-such decisions
+no cost for  
+such decisions  
 as betting on faulty pleasures
 
-no truth
-in crippled words
+no truth  
+in crippled words  
 half-thrust without intention
 
-premium
-is the measure of honesty
-premium
-is intuition
-premium
+premium  
+is the measure of honesty  
+premium  
+is intuition  
+premium  
 is self-awareness
 
 ### Why art is hard
 
-I saw some on sale
-I put out some pale
-some filled with colour
+I saw some on sale  
+I put out some pale  
+some filled with colour  
 truth, and humour
 
-all for the sake
-of self-inquiry
-for you see my diary
-exists in bits and pieces
-I found this in truth
+all for the sake  
+of self-inquiry  
+for you see my diary  
+exists in bits and pieces  
+I found this in truth  
 in the poems, I learnt to forget
 
 ### Palmwine fuel
 
-I sipped yesterday
-on the essence of
-an ancient liquor
-nothing concentrated
+I sipped yesterday  
+on the essence of  
+an ancient liquor  
+nothing concentrated  
 all parts joy
 
-infused too with herb
-the colour of burnt sugar
+infused too with herb  
+the colour of burnt sugar  
 but far from caramel
 
-it made me motivated
-and tickled me to action
-I would have worked regardless
-but wisdom sits
+it made me motivated  
+and tickled me to action  
+I would have worked regardless  
+but wisdom sits  
 at its junction
 
 ### Pesewas
 
-true profit
-has odd earnings
-as part of the deal
+true profit  
+has odd earnings  
+as part of the deal  
 the complete win
 
-in the coffers of those
-who farm with capital
-it is rare,
-that a round figure
-rings the bell
+in the coffers of those  
+who farm with capital  
+it is rare,  
+that a round figure  
+rings the bell  
 once one does sell
 
 ---
@@ -337,15 +337,15 @@ once one does sell
 
 ### Clockwork
 
-time is the river
-upon which life learns to swim
-float or sink
-either way, the currents sing
+time is the river  
+upon which life learns to swim  
+float or sink  
+either way, the currents sing  
 either way the constant wins
 
-so I will make
-the best of mine
-and aid those oar
+so I will make  
+the best of mine  
+and aid those oar  
 who float afar
 
 ---
