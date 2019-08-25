@@ -10,123 +10,123 @@ A few months ago, I was accepted into the training programme at the Meltwater En
 
 ### Moments of anxiety
 
-every bit of information
-was a drop of wise wine
-to my thirsty soul
-for I was the newest son of Tantalus
-eager to learn
-eager to earn
+every bit of information  
+was a drop of wise wine  
+to my thirsty soul  
+for I was the newest son of Tantalus  
+eager to learn  
+eager to earn  
 eager to give
 
-but what service can,
-a youthful merchant proffer
-at the base
+but what service can,  
+a youthful merchant proffer  
+at the base  
 of a global altar
 
-innovation or creation
-never competition,
-and even when the last
-is truly needed,
-how might it be done
+innovation or creation  
+never competition,  
+and even when the last  
+is truly needed,  
+how might it be done  
 without quiet reflection
 
 ### Helpful siren call
 
-straight out of university
-seeking out my destiny
-I see a precious opportunity
-I pause then pounce
+straight out of university  
+seeking out my destiny  
+I see a precious opportunity  
+I pause then pounce  
 I am knocked back by reality
 
-then I learn better
-push further
-and the whisper of melting water
-lets me know
-I can be tutored in the art
+then I learn better  
+push further  
+and the whisper of melting water  
+lets me know  
+I can be tutored in the art  
 of pristine excellence
 
-a school of business
-in the truest sense
-and I am captivated
-but in no fatal sense
-simply, in one of growth
-and I heed the
+a school of business  
+in the truest sense  
+and I am captivated  
+but in no fatal sense  
+simply, in one of growth  
+and I heed the  
 helpful siren call
 
 ### When it all began
 
-I stood far away
-close, yet still distant
-unsure of what still might
+I stood far away  
+close, yet still distant  
+unsure of what still might  
 be untoward or pleasant
 
-I dreamt of wins
-and dreaded losses
-I sought nothing
+I dreamt of wins  
+and dreaded losses  
+I sought nothing  
 but growth and fortune
 
-such was my soul
-as I arrived
-at the land of dreams
+such was my soul  
+as I arrived  
+at the land of dreams  
 at the edge of delight
 
 ### Tower of hope
 
-white walls
-and steep slopes
-best describe
+white walls  
+and steep slopes  
+best describe  
 my humble home
 
-a collection of flats
-in stacks of three
-with folds of rooms
-that hold simple souls,
-more complex
-in their mundanity
-even than the greatest sea
+a collection of flats  
+in stacks of three  
+with folds of rooms  
+that hold simple souls,  
+more complex  
+in their mundanity  
+even than the greatest sea  
 or the briefest cliff
 
 ### Monday the first
 
-a week before learning
-I was busy studying
-perspectives and realities
+a week before learning  
+I was busy studying  
+perspectives and realities  
 in abundance about me
 
-from the French of the west
-to the Swahili of the east
-from the tune, I always sought
+from the French of the west  
+to the Swahili of the east  
+from the tune, I always sought  
 to the song I grew up singing
 
-I took a break
-from technicality
-and pursued practicality
-blessing all those
-who would have me
-and growing through
-those who were kind
+I took a break  
+from technicality  
+and pursued practicality  
+blessing all those  
+who would have me  
+and growing through  
+those who were kind  
 enough to teach me
 
 ### Happy meals
 
-full nutrition
-and proper sustenance
-kiss my stoic belly
+full nutrition  
+and proper sustenance  
+kiss my stoic belly  
 and hug my sombre mind
 
-I strive to learn
-the names of all who
-in their official capacity
-tend and care
+I strive to learn  
+the names of all who  
+in their official capacity  
+tend and care  
 to my apt feeding
 
-there is Linda, who I met first
-then Diane with a regal smile
-and Aunt Mary, as she prefers to be called
-Amelia, and Beatrice
-whose names I oft mixup
-not for a reason mischievious
-but for the short space of time
+there is Linda, who I met first  
+then Diane with a regal smile  
+and Aunt Mary, as she prefers to be called  
+Amelia, and Beatrice  
+whose names I oft mixup  
+not for a reason mischievious  
+but for the short space of time  
 with which I have worked with
 
 ---
