@@ -2,7 +2,7 @@
 
 <img style="width: 90%; height: auto;" src="./poet-entrepreneur-bbb.png" alt="Cover Image" title="Cover Image" />
 
-A few months ago, I was accepted into the training programme at the Meltwater Entrepreneurial School of Technology. Here is a collection of poetry detailing my first few days at MEST, our first challenge before classes officially resume, and my experience during my first few days in Accra, Ghana.
+In 2019, I was accepted into the training programme at the [Meltwater Entrepreneurial School of Technology](https://meltwater.org/). Here is a collection of poetry detailing my first few days at MEST, our first challenge before classes officially resume, and my experience during my first few days in Accra, Ghana.
 
 ---
 
